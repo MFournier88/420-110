@@ -1,1 +1,1 @@
-# Pensais-tu vraiement que ce serait aussi facile? Retourne étudier!!
+# Pensais-tu vraiment que ce serait aussi facile? Retourne étudier!!
